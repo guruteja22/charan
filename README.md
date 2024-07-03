@@ -1,1 +1,4 @@
 # charan
+LFKWNF
+';QWJFKFKLQ
+QJFKJFJ
